@@ -8,6 +8,8 @@ Hey there! We are Rohan, Sania, Rini, and Riya. So you must be wondering what th
 
 ## We put the ILY in FAMILY 💖
 
+![Image](BRIDGE.jpeg)
+
 We are a fun wholesome bunch of people who love to meet new people, eat amazing food, all things Harry Potter, watch Desi movies, listen to all types of music, and **DANCE**! 
 
 
@@ -24,11 +26,15 @@ Reach out and let's hang! 😋
 
 ## More about us 🤩
 
+![Image](GARBA.jpg)
+
 We are very unique people who have diverse backgrounds with lots of different interests, so feel free to scroll through and see if you have anything in common!
 
 ### Rohan Boyapati
 
 *rmboyapati@email.wm.edu*
+
+![Image](AFSANA.jpeg)
 
 Hey folks, I'm Rohan Boyapati and I'm super pumped to meet you guys. I'm originally from NOVA (classic) and a Junior at W&M, but I'll be graduating in the fall. I'm a Bio major and Data Science minor on the premed track (yes I happened to be one of *those* ppl). I love chocolate, adore slushies 😋, and would die for Biryani. I am also the biggest Psych  🍍 and Office fan! I am a sucker for long walks, no seriously I've walked down to the outlets and back, but usually I'll prob be walking to Matoaka. My favorite spots on/near campus are probably ISC, Matoaka, and WAWA 😩!! I am involved in quite a few different clubs, activities, and research on campus so definitely reach out and we can chat about any of your interests!
 
@@ -43,6 +49,8 @@ Hi guys I'm Sania! I'm a Junior/2022 but graduating in le fall. I have an unheal
 ### Riya Garg
 
 ## Specifically more about our dynamic dynasty ✨
+
+![Image](RISHYA.jpeg)
 
 Rohan and Sania are twins 👯‍♂️. Rohan's little is Riya, Sania's little is Rini. Riya's uncle is Sania, Rini's aunt is Rohan. 
 
