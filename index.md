@@ -16,7 +16,27 @@ Although sometimes we hate Rohan, we love to hangout with some of our *amazing* 
 
 ## We want to get to know YOU 😊
 
-Yes, you! You are special. This is a crazy time to be alive, and this wild COVID pandemic took over our lives for the past year, but props to you for making this adjustment and making it work. Usually we would have met on campus to try and get to know you guys, have fun parties, go to Busch Gardens, and do other wholesome bonding events, but we can't do all of that right now. However, we can't just put our life on pause either so we want to reach out to you and hangout! Whether that's on zoom, or in person. Whether you want to meet one of us or all of us. Reach out and we can hang 😋
+Yes, you! You are special. This is a crazy time to be alive, and this wild COVID pandemic took over our lives for the past year, but props to you for making this adjustment and making it work. Usually we would have met on campus to try and get to know you guys, have fun parties, go to Busch Gardens, and do other wholesome bonding events, but we can't do all of that right now. However, we can't just put our life on pause either so we want to reach out to you and hangout! Whether that's on zoom, or in person. Whether you want to meet one of us or all of us. The purpose of this is not for bigs and littles, but just so we can make new friends and spread the joy that we have! Reach out and let's can hang 😋
+
+## More about us 🤩
+
+We are very unique people who have diverse backgrounds with lots of different interests, so feel free to scroll through and see if you have anything in common!
+
+### Rohan Boyapati
+
+Hello I'm Rohan Boyapati and I'm super pumped to meet you guys. I'm a Junior at W&M, but I'll be graduating in the fall
+
+### Sania Shahid
+
+Hi guys I'm Sania! I'm a Junior/2022 but graduating in le fall. I have an unhealthy obsession with mini M&Ms and Gilmore Girls is my one-size-fits-all solution to all things in life. I am an international student from Pakistan but also guilty of a little bit of NOVA in my (I went to McLean freshman-junior year of HS). I am an IR major and an Econ minor. On campus I’m involved in Afsana, Debate, the PIPS research lab, and the tour guide program! 
+
+### Rini Gupta
+
+### Riya Garg
+
+## Specifically more about our dynamic dynasty ✨
+
+Rohan and Sania are twins 👯‍♂️. Rohan's little is Riya, Sania's little is Rini. Riya's uncle is Sania, Rini's aunt is Rohan. Confused? Good. That's kinda the point of b/l. Our line has some pretty cool traditions (which sometimes we can just make up on the fly). So potential little(s) if you are reading this, we have tried our best to confuse you and make this weird semester b/l thing work out for you guys.
 
 
 
