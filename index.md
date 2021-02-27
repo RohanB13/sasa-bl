@@ -5,14 +5,20 @@
 Hey there! We are Rohan, Sania, Rini, and Riya. So you must be wondering what this is, who we are and how extra it was to make a website. Well you are right, it is extra af, but this only took us a few minutes so we figured why not haha. Anyways, scroll through to learn more about us and find out why you should befriend our quirky bunch :)
 
 
+
 ## We put the ILY in FAMILY :sparkling_heart:
+
 We are a fun wholesome bunch of people who love to meet new people, eat amazing food, all things Harry Potter, watch Desi movies, listen to all types of music, and **DANCE**!
 
+
 ## We love spending time with each other and some of our cool friends :sunglasses:
-Although sometimes we hate Rohan, we love to hangout with some of our amazing friends! We like to try different activities, like going on walks to Lake Matoaka, walking to Colonial Williamsburg, having game and movie nights, going to different restaurants near campus, breakout into a random dance sesh, and attending SASA activities (get hyped for Expressions).
+
+Although sometimes we hate Rohan, we love to hangout with some of our *amazing* friends (you should also reach out to them)! We like to try different activities, like going on walks to Lake Matoaka, walking to Colonial Williamsburg, having game and movie nights, going to different restaurants near campus, breakout into a random dance sesh, and attending SASA activities (get hyped for Expressions).
+
 
 ## We want to get to know YOU :relaxed:
-Yes, you! You are special.
+
+Yes, you! You are special. This is a crazy time to be alive, and COVID-19 took over our 
 </p>
 
 
