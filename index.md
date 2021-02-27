@@ -1,5 +1,7 @@
 # The Dynasty
 
+![Image](DYNASTY.jpeg)
+
 Hey there! We are Rohan, Sania, Rini, and Riya. So you must be wondering what this is, who we are and how extra it was to make a website. Well you are right, it is extra af, but this only took us a few minutes so we figured why not haha. Anyways, scroll through to learn more about us and find out why you should befriend our quirky bunch :)
 
 
