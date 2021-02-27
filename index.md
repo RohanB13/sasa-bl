@@ -1,5 +1,3 @@
-<p align="center">
-    
 # The Dynasty
 
 Hey there! We are Rohan, Sania, Rini, and Riya. So you must be wondering what this is, who we are and how extra it was to make a website. Well you are right, it is extra af, but this only took us a few minutes so we figured why not haha. Anyways, scroll through to learn more about us and find out why you should befriend our quirky bunch :)
@@ -8,7 +6,7 @@ Hey there! We are Rohan, Sania, Rini, and Riya. So you must be wondering what th
 
 ## We put the ILY in FAMILY :sparkling_heart:
 
-We are a fun wholesome bunch of people who love to meet new people, eat amazing food, all things Harry Potter, watch Desi movies, listen to all types of music, and **DANCE**!
+We are a fun wholesome bunch of people who love to meet new people, eat amazing food, all things Harry Potter, watch Desi movies, listen to all types of music, and **DANCE**! 
 
 
 ## We love spending time with each other and some of our cool friends :sunglasses:
@@ -18,8 +16,8 @@ Although sometimes we hate Rohan, we love to hangout with some of our *amazing* 
 
 ## We want to get to know YOU :relaxed:
 
-Yes, you! You are special. This is a crazy time to be alive, and COVID-19 took over our 
-</p>
+Yes, you! You are special. This is a crazy time to be alive, and this wild COVID pandemic took over our lives for the past year, but props to you for making this adjustment and making it work. Usually we would have met on campus to try and get to know you guys, have fun parties, go to Busch Gardens, and do other wholesome bonding events, but we can't do all of that right now. However, we can't just put our life on pause either so we want to reach out to you and hangout! Whether that's on zoom, or in person. Whether you want to meet one of us or all of us. Reach out and we can hang :stuck_out_tongue:
+
 
 
 ## Welcome to GitHub Pages
