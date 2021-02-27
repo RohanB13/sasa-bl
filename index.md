@@ -20,7 +20,7 @@ Although sometimes we hate Rohan 🙃, we love to hangout with some of our *amaz
 
 ## We want to get to know YOU 😊
 
-Yes, you! You are special. This is a crazy time to be alive, and this wild COVID pandemic took over our lives for the past year, but props to you for making this adjustment and making it work. Usually we would have met on campus to try and get to know you guys, have fun parties, go to Busch Gardens, and do other wholesome bonding events, but we can't do all of that right now. However, we can't just put our life on pause either so we want to reach out to you and hangout! Whether that's on zoom, or in person. Whether you want to meet one of us or all of us. The purpose of this is not for bigs and littles, but just so we can make new friends and spread the joy that we have! 
+Yes, you! You are special. This is a crazy time to be alive, and this wild COVID pandemic took over our lives for the past year, but props to you for making this adjustment and making it work. Usually we would have met on campus to try and get to know you guys, have fun parties, go to Busch Gardens, and do other wholesome bonding events, but we can't do all of that right now. However, we also have to make the best of the situation, so we want to reach out to you and hangout! Whether that's on zoom, or in person. Whether you want to meet one of us or all of us. The purpose of this is not for bigs and littles, but just so we can make new friends and spread the joy that we have! 
 
 Reach out and let's hang! 😋
 
@@ -33,8 +33,6 @@ We are very unique people who have diverse backgrounds with lots of different in
 ### Rohan Boyapati
 
 *rmboyapati@email.wm.edu*
-
-![Image](AFSANA.jpeg)
 
 Hey folks, I'm Rohan Boyapati and I'm super pumped to meet you guys. I'm originally from NOVA (classic) and a Junior at W&M, but I'll be graduating in the fall. I'm a Bio major and Data Science minor on the premed track (yes I happened to be one of *those* ppl). I love chocolate, adore slushies 😋, and would die for Biryani. I am also the biggest Psych  🍍 and Office fan! I am a sucker for long walks, no seriously I've walked down to the outlets and back, but usually I'll prob be walking to Matoaka. My favorite spots on/near campus are probably ISC, Matoaka, and WAWA 😩!! I am involved in quite a few different clubs, activities, and research on campus so definitely reach out and we can chat about any of your interests!
 
