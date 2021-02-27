@@ -8,7 +8,7 @@ Hey there! We are Rohan, Sania, Rini, and Riya. So you must be wondering what th
 
 ## We put the ILY in FAMILY 💖
 
-![Image](BRIDGE.jpeg)
+![Image](NKD.jpeg)
 
 We are a fun wholesome bunch of people who love to meet new people, eat amazing food, all things Harry Potter, watch Desi movies, listen to all types of music, and **DANCE**! 
 
@@ -22,7 +22,7 @@ Although sometimes we hate Rohan 🙃, we love to hangout with some of our *amaz
 
 ## We want to get to know YOU 😊
 
-![Image](NKD.jpeg)
+![Image](BRIDGE.jpeg)
 
 Yes, you! You are special. This is a crazy time to be alive, and this wild COVID pandemic took over our lives for the past year, but props to you for making this adjustment and making it work. Usually we would have met on campus to try and get to know you guys, have fun parties, go to Busch Gardens, and do other wholesome bonding events, but we can't do all of that right now. However, we also have to make the best of the situation, so we want to reach out to you and hangout! Whether that's on zoom, or in person. Whether you want to meet one of us or all of us. The purpose of this is not for bigs and littles, but just so we can make new friends and spread the joy that we have! 
 
@@ -65,7 +65,7 @@ That's kinda the point of b/l. Our line has some pretty cool traditions (which s
 
 ## Thanks for visiting!
 
-![Image](RS.jpeg)
+![Image](RS.jpg)
 
 If you scrolled all the way down here and read everything, I'm going to assume you saw the hidden dinosaur image..
 
