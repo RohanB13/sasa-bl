@@ -1,3 +1,11 @@
+# The Dynasty
+
+Hey there! So you must be wondering what this is and who we are and how extra it was to make a website. Well you are right, it is extra af, but this only took us a few minutes so we figured why not haha. Anyways, scroll through to learn more about us and find out why you should befriend our quirky bunch :)
+
+
+## We put the ~FML~ ILY in FAMILY
+
+
 ## Welcome to GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/RohanB13/sasa-bl/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
