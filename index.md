@@ -5,10 +5,11 @@
 Hey there! We are Rohan, Sania, Rini, and Riya. So you must be wondering what this is, who we are and how extra it was to make a website. Well you are right, it is extra af, but this only took us a few minutes so we figured why not haha. Anyways, scroll through to learn more about us and find out why you should befriend our quirky bunch :)
 
 
-## We put the ILY in FAMILY :purple_heart:
-We are a fun wholesome bunch of people who love to meet new people, eat amazing food, all things Harry Potter, watch Desi movies, listen to all types of music, and _**DANCE**_!
+## We put the ILY in FAMILY :sparkling_heart:
+We are a fun wholesome bunch of people who love to meet new people, eat amazing food, all things Harry Potter, watch Desi movies, listen to all types of music, and **DANCE**!
 
-
+## We love spending time with each other and some of our cool friends :sunglasses:
+Although sometimes we hate Rohan, we love to hangout with some of our amazing friends! 
 </p>
 
 
