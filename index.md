@@ -9,7 +9,10 @@ Hey there! We are Rohan, Sania, Rini, and Riya. So you must be wondering what th
 We are a fun wholesome bunch of people who love to meet new people, eat amazing food, all things Harry Potter, watch Desi movies, listen to all types of music, and **DANCE**!
 
 ## We love spending time with each other and some of our cool friends :sunglasses:
-Although sometimes we hate Rohan, we love to hangout with some of our amazing friends! 
+Although sometimes we hate Rohan, we love to hangout with some of our amazing friends! We like to try different activities, like going on walks to Lake Matoaka, walking to Colonial Williamsburg, having game and movie nights, going to different restaurants near campus, breakout into a random dance sesh, and attending SASA activities (get hyped for Expressions).
+
+## We want to get to know YOU :relaxed:
+Yes, you! You are special.
 </p>
 
 
