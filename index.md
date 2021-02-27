@@ -11,12 +11,14 @@ We are a fun wholesome bunch of people who love to meet new people, eat amazing 
 
 ## We love spending time with each other and some of our cool friends 😎
 
-Although sometimes we hate Rohan, we love to hangout with some of our *amazing* friends (you should also reach out to them)! We like to try different activities, like going on walks to Lake Matoaka, walking to Colonial Williamsburg, having game and movie nights, going to different restaurants near campus, breakout into a random dance sesh, and attending SASA activities (get hyped for Expressions).
+Although sometimes we hate Rohan 🙃, we love to hangout with some of our *amazing* friends (you should also reach out to them)! We like to try different activities, like going on walks to Lake Matoaka, walking to Colonial Williamsburg, having game and movie nights, going to different restaurants near campus, breakout into a random dance sesh, and attending SASA activities (get hyped for Expressions).
 
 
 ## We want to get to know YOU 😊
 
-Yes, you! You are special. This is a crazy time to be alive, and this wild COVID pandemic took over our lives for the past year, but props to you for making this adjustment and making it work. Usually we would have met on campus to try and get to know you guys, have fun parties, go to Busch Gardens, and do other wholesome bonding events, but we can't do all of that right now. However, we can't just put our life on pause either so we want to reach out to you and hangout! Whether that's on zoom, or in person. Whether you want to meet one of us or all of us. The purpose of this is not for bigs and littles, but just so we can make new friends and spread the joy that we have! Reach out and let's hang 😋
+Yes, you! You are special. This is a crazy time to be alive, and this wild COVID pandemic took over our lives for the past year, but props to you for making this adjustment and making it work. Usually we would have met on campus to try and get to know you guys, have fun parties, go to Busch Gardens, and do other wholesome bonding events, but we can't do all of that right now. However, we can't just put our life on pause either so we want to reach out to you and hangout! Whether that's on zoom, or in person. Whether you want to meet one of us or all of us. The purpose of this is not for bigs and littles, but just so we can make new friends and spread the joy that we have! 
+
+Reach out and let's hang! 😋
 
 ## More about us 🤩
 
@@ -43,6 +45,7 @@ Hi guys I'm Sania! I'm a Junior/2022 but graduating in le fall. I have an unheal
 Rohan and Sania are twins 👯‍♂️. Rohan's little is Riya, Sania's little is Rini. Riya's uncle is Sania, Rini's aunt is Rohan. 
 
 Confused? 
+
 Good. 
 
 That's kinda the point of b/l. Our line has some pretty cool traditions (which sometimes we can just make up on the fly). So potential little(s) if you are reading this, we have tried our best to confuse you and make this weird semester b/l thing work out for you guys.
@@ -57,7 +60,7 @@ just kidding there wasn't a dinosaur image
 
 but seriously reach out to us!
 
-
+#
 
 *With love,
  The Dynasty*
