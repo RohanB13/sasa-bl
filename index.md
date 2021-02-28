@@ -79,5 +79,3 @@ but seriously reach out to us!
 *With love,
  The Dynasty*
 
-```[Link](url) and ![Image](src)```
-
